@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HuangXiying2024
 - 👀 I’m interested in Information Economics.
-- 🌱 I’m currently learning Management Science and Engineering at Tsinghua University.
+- 🌱 I’m currently pursuing a Ph.D. in Management Science and Engineering at Tsinghua University as a first-year student.
 - 📫 How to reach me qy-huang24@mails.tsinghua.edu.cn.
 - 😄 Pronouns: Xixi,Celine
 
